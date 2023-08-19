@@ -1,2 +1,2 @@
 # Flysend
-Soon, see us in 2023
+Soon, probably coming in January 2024
