@@ -1,2 +1,2 @@
 # Flysend
-Soon, probably coming in January 2024
+Soon, probably coming in March-April 2024
